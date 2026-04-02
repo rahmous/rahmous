@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...code
 - 🌱 I’m currently learning ...coding
 - 💞️ I’m looking to collaborate on ...people
-- 📫 How to reach me ...look at my projets or give me mony
+- 📫 How to reach me ...look at my projets or give me money
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
